@@ -2,4 +2,4 @@
 - 👀 I’m interested in COVID-19 and aerospace
 - 🌱 I’m currently learning Virology, Mathematics, Geography and Meteorology
 - 💞️ I’m looking to collaborate on COVID-19
-- 📫 You can contact me through email @BluestarStubborn@hotmail.com
+- 📫 You can contact me through email BluestarStubborn@hotmail.com
